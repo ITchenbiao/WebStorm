@@ -1,6 +1,8 @@
 ＃webstorm
 破解码
 
+正版注册码
+http://idea.lanyus.com/
 
 选择 License server 
 
